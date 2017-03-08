@@ -7,5 +7,6 @@ How would you get rid of the boring things and avoiding a heart attach?
 
 If you want to stay in touch and really give your suggestion please follow this account on GitHub.
 
-Thanks for you help!
+Thanks for your help!
+
 
